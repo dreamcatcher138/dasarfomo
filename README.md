@@ -1,2 +1,2 @@
 # dasarfomo
-Udah Bang Jamgam Ikut2 Nanti Kesandung
+Udah Bang Jangan Ikut2 Nanti Kesandung
